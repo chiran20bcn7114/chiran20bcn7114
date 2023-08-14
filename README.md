@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **chiranjibi.20bcn7114@vitap.ac.in**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/11CSWOcktGBP9kRS7FOmX7eC_27qrlmd9/view?usp=sharing](https://drive.google.com/file/d/11CSWOcktGBP9kRS7FOmX7eC_27qrlmd9/view?usp=sharing)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
